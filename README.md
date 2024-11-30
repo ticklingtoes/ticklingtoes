@@ -14,4 +14,6 @@ cupio · `introverted`
 
 ![image](https://media.discordapp.net/attachments/1161332539408011284/1312337708361715792/tumblr_548f0e46f3dc4c94beab00f5c8b477a5_92b52384_640.gif.webp?ex=674c213b&is=674acfbb&hm=4124a96028f9b5b45e703af0f9297b248e9b37e98a2c71e25ba7b35a9202cf59&&animated=true)
 
-![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xbajw4xxoabluw4bj4m5g3jn54&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=c787a2&bar_color_cover=false)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xbajw4xxoabluw4bj4m5g3jn54&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=c787a2&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+———— ୨୧ ————
