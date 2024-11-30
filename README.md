@@ -7,3 +7,5 @@
 cupio · `introverted`
 
 ![image](https://media.discordapp.net/attachments/1161332539408011284/1312337708361715792/tumblr_548f0e46f3dc4c94beab00f5c8b477a5_92b52384_640.gif.webp?ex=674c213b&is=674acfbb&hm=4124a96028f9b5b45e703af0f9297b248e9b37e98a2c71e25ba7b35a9202cf59&&animated=true)
+
+interests  ␥  bungou stray dogs , vtubers , cookie run kingdom , alien stage , wuthering waves
