@@ -1,0 +1,3 @@
+![image](https://media.discordapp.net/attachments/1161332539408011284/1312329611715018804/Untitled738_20241130160703.png?ex=674c19b1&is=674ac831&hm=2aeb7bcd5199821dde6d57a3c8b796bfead2f873a907e668e4e63d91f94722f8&)
+![image](https://media.discordapp.net/attachments/1161332539408011284/1312335299669528656/Untitled739_20241130163150.png?ex=674c1efd&is=674acd7d&hm=f9f150f06cafe7f7dd617ac6ac1b268cb8fffed8874c70d429c6b798098709da&)
+anyprns  ﹔  cupio
